@@ -1,0 +1,1 @@
+# Ausbreitung-einer-ansteckenden-Krankheit
